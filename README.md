@@ -1,1 +1,0 @@
-# ar-gps9favsc
